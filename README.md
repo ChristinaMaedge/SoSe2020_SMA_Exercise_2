@@ -1,0 +1,1 @@
+# SoSe2020_SMA_Exercise_2
